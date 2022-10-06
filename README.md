@@ -1,4 +1,1 @@
 YSC - Yuri Stundis Costa
-
-
-:|
