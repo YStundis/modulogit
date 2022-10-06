@@ -1,1 +1,1 @@
-YSC
+YSC - Yuri Stundis Costa
